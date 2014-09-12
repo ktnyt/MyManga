@@ -70,3 +70,8 @@
 
 - [kindle 1](http://www.amazon.co.jp/gp/product/B00E3JU2RU?ie=UTF8&camp=247&creativeASIN=B00E3JU2RU&linkCode=xm2&tag=coela-22)
 
+### HELLSING
+
+- [kindle 1](http://www.amazon.co.jp/gp/product/B00D783FVI?ie=UTF8&camp=247&creativeASIN=B00D783FVI&linkCode=xm2&tag=coela-22)
+
+
