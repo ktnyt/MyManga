@@ -40,19 +40,19 @@
 
 ### シドニアの騎士
 
-弐瓶勉先生がこんなにわかりやすいマンガを出すとは
+弐瓶勉先生がこんなにわかりやすい（？）マンガをかくとは
 
 - [kindle 1](http://www.amazon.co.jp/gp/product/B00CE3T8IQ?ie=UTF8&camp=247&creativeASIN=B00CE3T8IQ&linkCode=xm2&tag=coela-22)
 
 ### 聲の形
 
-読んでてたまにたまにうわぁってなる
+読んでて、たまにたまにうわぁってなる
 
 - [kindle 1](http://www.amazon.co.jp/gp/product/B00HJYUJ9C?ie=UTF8&camp=247&creativeASIN=B00HJYUJ9C&linkCode=xm2&tag=coela-22)
 
 ### 幻想ギネコクラシー
 
-読み切り形式。超笑った。
+一話読み切り形式。超笑った。
 
 - [書籍 1](http://www.amazon.co.jp/gp/product/4592710649?ie=UTF8&camp=247&creativeASIN=4592710649&linkCode=xm2&tag=coela-22)
 
@@ -100,13 +100,13 @@
 
 ### トライガン
 
-かっこいい
+いちいちかっこいい
 
 - [kindle 1](http://www.amazon.co.jp/gp/product/B00E3JU2RU?ie=UTF8&camp=247&creativeASIN=B00E3JU2RU&linkCode=xm2&tag=coela-22)
 
 ### HELLSING
 
-おしゃれに殺しまくり
+おしゃれに人がいっぱい死ぬ
 
 - [kindle 1](http://www.amazon.co.jp/gp/product/B00D783FVI?ie=UTF8&camp=247&creativeASIN=B00D783FVI&linkCode=xm2&tag=coela-22)
 
