@@ -106,7 +106,7 @@
 
 ### HELLSING
 
-おしゃれに人がいっぱい死ぬ
+吸血鬼がいっぱい
 
 - [kindle 1](http://www.amazon.co.jp/gp/product/B00D783FVI?ie=UTF8&camp=247&creativeASIN=B00D783FVI&linkCode=xm2&tag=coela-22)
 
